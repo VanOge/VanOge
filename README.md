@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @VanOge
+- 👀 I’m interested in learning programming language 
+- 🌱 I’m currently doing my first step in the world of computing 
+- 💞️ I’m looking to collaborate on everything which can make me smarter
+- 📫 reach me on telegram at 652703776
